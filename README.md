@@ -2,7 +2,7 @@
 
 <p align="center">
   
-[![Assista ao vídeo](https://i.imgur.com/N1rqfZN.png)](https://youtu.be/vt5fpE0bzSY)
+[![Assista ao vídeo](https://i.imgur.com/N1rqfZN.png)](https://youtu.be/VzNxjNxxnYU)
 
 </p>
 
